@@ -1,2 +1,0 @@
-# Kami_ini
-Karyaku
